@@ -1,0 +1,2 @@
+# premium-enameling-copper-001-copper-enameling-kiln-firing
+Tired of wasting money on expensive kiln experiments that end in cracked enamel and burnt fingers? This complete blueprint transforms your kitchen table into a professional copper enameling jewelry studio — no guesswork, no wasted materials.  This studio guide eliminates the trial-and-error that stops most beginners cold. You get a proven, step-by-
